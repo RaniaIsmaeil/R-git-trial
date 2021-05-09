@@ -42,3 +42,9 @@ ___
 
 Detail oriented team player accustomed to working in fast paced / multitasking environments within deadlines. </p> 
 
+## **Activities**
+
+* Volunteered and participated as a member in a several events and workshops that aimed at doing charity work, and raising awareness concerning important topics like health and the environment.
+* Private tutorials in several subjects for school students.
+* Drawing, Swimming, Hiking, and Basketball.
+
